@@ -1,2 +1,2 @@
 
-![photo](https://github.com/satishgupta2/Youtube-Clone/assets/126942680/71256adf-3b0e-4ff1-99ab-bffa47e98cc9)
+![photo1](https://github.com/satishgupta2/Youtube-Clone/assets/126942680/00f1a6b6-fe52-4f2a-b1ab-43fc4a7944e5)
